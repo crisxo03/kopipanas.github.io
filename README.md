@@ -1,1 +1,0 @@
-# kopipanas.github.io
